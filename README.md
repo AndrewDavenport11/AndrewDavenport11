@@ -5,8 +5,8 @@
 
 Here are some ideas to get you started:
 
-- 🌱 I’m currently learning courses dedicated towards my major.
+- 🌱 I’m currently a student at the University of Iowa
 - 📫 How to reach me: 3197776311 or andavenport4321@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I like to lift and play sports
--->
+
